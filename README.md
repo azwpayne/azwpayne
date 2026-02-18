@@ -4,7 +4,7 @@
 
 - 🌲 Your can reach me，This is my contact information
 - 📧 E-mail paynewu0719@gmail.com
-- ⚠️ WeChat: chenxi-0719-chenxi
+- ⚠️ WeChat: azwpayne
 - 💻 MP: 积跬Coder
 - 🤔 Want to see my blog, really? Please click the book[👉📖👈](https://paynewu.com/)
 
